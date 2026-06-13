@@ -1,0 +1,2 @@
+# Nintendero
+pagina de fans
